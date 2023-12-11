@@ -1,1 +1,1 @@
-mingu super gay
+la sorella di mingu
